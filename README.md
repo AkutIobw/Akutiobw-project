@@ -1,4 +1,4 @@
-![image](https://github.com/AkutIobw/Akutiobw-project/assets/154993268/1a5376b5-5b5c-4754-a2ee-efab6bb475b4)  
+![image](https://github.com/AkutIobw/Akutiobw-project/assets/154993268/1a5376b5-5b5c-4754-a2ee-efab6bb475b4)   
  
 # ::::::::::::::::::::::: ABOUT THE PROGRAM :::::::::::::::::::::::
 
